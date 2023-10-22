@@ -1,2 +1,2 @@
-# YouGlowingBeads.com
+# YourGlowingBeads.com
 welcome to YourGlowingBeads
